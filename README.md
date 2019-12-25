@@ -1,0 +1,1 @@
+# kuricyn669.github.io
